@@ -1,1 +1,1 @@
-
+Me introduzco, me llamo Joaquin Mercado, estudio Ciencias de la Computación y me gusta programar
